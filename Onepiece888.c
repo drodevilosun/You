@@ -7,4 +7,6 @@ Every battle ship of Big Mom is the same, the main ship which owned by Big Mom's
 For example: Bavarois owned a ship which the prow had a hat the same with his hat.
 Bavarois was introduced in this chapter even Arc in final state. He may has a roles in next chapter (1 - be beaten, 2 - use a special power =]])
 The helmsman is very important when go out to the sea, Jinbe - a fishmen who has knowledge about ocean currents. So, he can drive the ship very fast and leave Big Mom's legions behind.
+2 girls stay beside Smoothie was appeared in the last chapter
+Fasting and walking for a long time, Big Mom was skinny. I guess Big Mom will be fat again after eat Sanji's cake.
   
