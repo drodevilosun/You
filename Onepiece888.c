@@ -9,4 +9,5 @@ Bavarois was introduced in this chapter even Arc in final state. He may has a ro
 The helmsman is very important when go out to the sea, Jinbe - a fishmen who has knowledge about ocean currents. So, he can drive the ship very fast and leave Big Mom's legions behind.
 2 girls stay beside Smoothie was appeared in the last chapter
 Fasting and walking for a long time, Big Mom was skinny. I guess Big Mom will be fat again after eat Sanji's cake.
-  
+Daifuku looks awake and he decide to use normal cannons instead Homie cannons which were reduced morale.
+Carrot's new shape name "Ceylon" (Suron - it means: lion moon). Ceylon, more widely known as Siri Lanka, it is a kind of lion was extinct before human culture appears about 37.000 years B.C.
